@@ -2,7 +2,7 @@
 
 ## What's with the name?
 
-¯\\_(ツ)_/¯
+¯\\\_(ツ)\_/¯
 
 ## Goal
 
